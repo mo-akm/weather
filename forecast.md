@@ -2,9 +2,10 @@
 
 ## Today
 
-Wet and wild
+Wet and wild with cats and dogs
 
 ## Tomorrow
 
-Dreary with a chance of cake
+Dreary with a chance of cake (victoria sponge)
+
 
